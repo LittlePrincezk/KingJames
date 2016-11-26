@@ -1,2 +1,2 @@
 # KingJames
-This is a room for myself.
+This is a room for James.
